@@ -1,0 +1,1 @@
+My portfolio repo for my everchanging and growing skills. I've been spending a lot of time on making something aethetically pleasing but it's extremely difficult for me to write something specifically about myself. I'm not all that special but I have some great skills and a lot to share with the world.
